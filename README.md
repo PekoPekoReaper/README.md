@@ -1,5 +1,4 @@
 # README.md
-/storage/emulated/0/Pictures/بدون اسم1530_20250701113140~2.png
 ⋆*･ﾟ:⋆*･ﾟ☽ {Oops, looks like a lucky loser found my page!} ☾ ⋆*･ﾟ:⋆*･ﾟ
 
 *connor➳reaper*
