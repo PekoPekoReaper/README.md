@@ -5,10 +5,17 @@
 *he/him➳he/they*
 *➳pan/aro*
 
-『𝑭𝒓𝒊𝒆𝒏𝒅𝒔』
-my cool amazing people: @malepregnancy @goodbyehome @bomboclat @zenthicaleph and some others ! !
+『dni list』
+diddy jokes — instant hide. my dear, please don't interact if you're gonna make sexual jokes.
+
+
+
 
 *❝you would forgive yourself right away..— THEN WHY WON'T YOU FORGIVE ME?!❞*
+
+  
+  
+  
   Lıllılı.ıllı.ılılıı
          The Empress ~ Undead Corporation
                    ◁◁    ▐ ▌     ▷▷
