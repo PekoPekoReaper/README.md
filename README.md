@@ -3,7 +3,7 @@
 
 *connor➳reaper*
 *he/him➳he/they*
-*➳pan/aro*
+*➳pansexual/aroace*
 
 『dni list』
 diddy jokes — instant hide. my dear, please don't interact if you're gonna make sexual jokes, Please. that's all i want. i need a clean interaction.
