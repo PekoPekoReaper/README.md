@@ -6,7 +6,7 @@
 *➳pan/aro*
 
 『dni list』
-diddy jokes — instant hide. my dear, please don't interact if you're gonna make sexual jokes.
+diddy jokes — instant hide. my dear, please don't interact if you're gonna make sexual jokes, Please. that's all i want. i need a clean interaction.
 
 
 
@@ -17,7 +17,7 @@ diddy jokes — instant hide. my dear, please don't interact if you're gonna mak
   
   
   Lıllılı.ıllı.ılılıı
-         The Empress ~ Undead Corporation
+         The Empress - Undead Corporation
                    ◁◁    ▐ ▌     ▷▷
 2:18━━━━━━━━━━♡━━━2:55
 
